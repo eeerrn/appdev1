@@ -1,0 +1,3 @@
+# i despise everything 
+
+skibidi 
